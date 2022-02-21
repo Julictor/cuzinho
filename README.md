@@ -1,2 +1,2 @@
-# thegays
-VICTOR TA ME IRRITANDO VOU BATER NELE 
+# Julinha do Grau
+Paz e Amor
